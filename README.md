@@ -51,3 +51,9 @@
 
 
 ## OUTPUT:
+
+![Contact +91 xxxxxxxxxx to Reserve Your Spot  (1)](https://github.com/user-attachments/assets/dc3fb45f-870e-4051-bf7a-03b0ea2138d1)
+
+## RESULT:
+
+Thus to edit an image using an image editing software is finished.
